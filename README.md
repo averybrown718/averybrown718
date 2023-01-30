@@ -5,3 +5,5 @@ My expertise are React, Javascript and PHP.
 
 Sometimes I would look around new projects and like to meet new clients with ideas.
 Please message me if you want to do something done.
+Whatsapp: +1 6195029572
+Email: averybrown718@gmail.com
